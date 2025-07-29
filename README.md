@@ -1,7 +1,10 @@
 # JVYYY
+
+" Leave it to me, **partner.** "
 <img width="1280" height="150" alt="image" src="https://github.com/user-attachments/assets/97f00256-6bd0-493b-bef3-e7c67cf83737" />
 
-   <img width="542" height="542" alt="image" src="https://github.com/user-attachments/assets/4138f1a0-0877-481e-a460-4daca26f5e9b" />
+   <img width="735" height="432" alt="image" src="https://github.com/user-attachments/assets/ed212c34-cc58-4fad-b916-e53074cf8e8f" />
+
 
 chuuya kinner  -  she/her  -  taken
 
