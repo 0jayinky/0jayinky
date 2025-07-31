@@ -1,7 +1,25 @@
+ .   
+.
+.
 
+.
+
+.
+'
+.
+.
+
+.
+.
+.
+
+.
+
+.
 
 " i would never hurt **percival** "
-<img width="1000" height="370" alt="image" src="https://github.com/user-attachments/assets/e126d403-ce75-4ccc-ad35-9ecb3e783eb6" />
+
+<img width="1280" height="136" alt="image" src="https://github.com/user-attachments/assets/d5faf73c-5911-469f-9d4e-4b23bff5fa0c" />
 
 
 
